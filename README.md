@@ -25,11 +25,10 @@ Internetberatung, Digitalisierungsberatung:
 - Internet Berater (Internetberater)
 - Internet Strategieberater
 - Internet Unternehmensberater
-
-- Konz
-- Trier
-- Rheinland-Pfalz
-- Germany
+   - Konz
+   - Trier
+   - Rheinland-Pfalz
+   - Germany
 
 ---
 
