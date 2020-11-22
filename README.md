@@ -22,6 +22,10 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 Internetberatung, Digitalisierungsberatung:
 
+- Internet Berater (Internetberater)
+- Internet Strategieberater
+- Internet Unternehmensberater
+
 - Konz
 - Trier
 - Rheinland-Pfalz
