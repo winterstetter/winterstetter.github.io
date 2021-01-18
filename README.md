@@ -22,7 +22,7 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 Internetberatung, Digitalisierungsberatung:
 
-- Internet Berater (Internetberater)
+- [Internet Berater (Internetberater)](https://thomaswinterstetter.com/internet-consulting)
 - Internet Strategieberater
 - Internet Unternehmensberater
    - Konz
