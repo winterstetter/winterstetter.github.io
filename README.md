@@ -11,7 +11,7 @@ Strategic Advisory Services ⊜ Strategy Consulting
 - Strategieberatung Berlin
 - Strategieberatung Frankfurt
 - Strategy Consulting Luxembourg
-- Strategy Consulting Milano
+- Strategy Consulting Trier
 - Strategy Consulting Paris
 
 ---
