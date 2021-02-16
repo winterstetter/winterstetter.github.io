@@ -15,7 +15,14 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 ---
 
-### Internet Unternehmensberatung
+## [Digitalist](https://thomaswinterstetter.com)
+
+- Digitalisierungsstrategie
+- [Digitalstrategie](https://thomaswinterstetter.com)
+
+---
+
+## Internet Unternehmensberatung
 
 [Internet Unternehmensberatung](https://thomaswinterstetter.com/internet-unternehmensberatung)
 
