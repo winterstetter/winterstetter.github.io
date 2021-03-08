@@ -24,28 +24,15 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 ## Internet Unternehmensberatung
 
-[Internet Unternehmensberatung](https://thomaswinterstetter.com/internet-unternehmensberatung)
+[Internet-Unternehmensberatung](https://thomaswinterstetter.com/internet-unternehmensberatung)
 
 Internetberatung, Digitalisierungsberatung:
 
 - [Internet Berater (Internetberater)](https://thomaswinterstetter.com/internet-consulting)
-- Internet Strategieberater
-- Internet Unternehmensberater
-   - Konz
-   - Trier
-   - Rheinland-Pfalz
-   - Germany
-
----
-
-### Michael Winterstetter Immobilien
-
-[Immobilien Makler Berlin Köpenick](http://winterstetter.online)
-
-Immobilienberatung, Immobilienexperte Berlin:
-
-- Immobilien Makler Berlin Köpenick (Treptow-Köpenick)
-- Immobilien-Makler Krusenick
-- Immobilien-Makler Wendenschloss
-
+- Internet Unternehmensberatung Strategieberater
+- Internet Unternehmensberatung Unternehmensberater
+   - Unternehmensberatung Konz
+   - Unternehmensberatung Trier
+   - Unternehmensberatung Rheinland-Pfalz
+   - Unternehmensberatung Germany
 
