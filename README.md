@@ -4,7 +4,7 @@
 
 Experienced freelancer based in Germany, available for hire in Europe.
 
-### Strategic Advisory Services
+### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
 Strategic Advisory Services ⊜ Strategy Consulting
 
@@ -19,6 +19,7 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 - Digitalisierungsstrategie
 - [Digitalstrategie](https://thomaswinterstetter.com)
+- [Digital Marketing, Inbound Marketing](https://thomaswinterstetter.com/internet-unternehmensberatung)
 
 ---
 
