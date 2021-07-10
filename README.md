@@ -15,7 +15,7 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 ---
 
-## [Digitalist](https://thomaswinterstetter.com)
+## [Digitalist](https://thomaswinterstetter.com/digitalist)
 
 - Digitalisierungsstrategie
 - [Digitalstrategie](https://thomaswinterstetter.com)
