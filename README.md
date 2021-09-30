@@ -29,13 +29,14 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 [Internet-Unternehmensberatung](https://thomaswinterstetter.com#internet-unternehmensberatung)
 
+
 Internetberatung, Digitalisierungsberatung:
 
 - [Internet Berater (Internetberater)](https://thomaswinterstetter.com#internet-consulting)
 - Internet Unternehmensberatung Strategieberater
 - Internet Unternehmensberatung Unternehmensberater
 
-![Unternehmensberatung Trier & Umland, Konz, Saarburg](.png)
+![Unternehmensberatung Trier & Umland, Konz, Saarburg](Unternehmensberatung - Unternehmensberater - Konz - Trier.png)
 
 ### Unternehmensberatung
 
