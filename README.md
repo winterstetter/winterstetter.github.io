@@ -60,3 +60,9 @@ Internetberatung, Digitalisierungsberatung:
 5. [Meta Consulting](https://thomaswinterstetter.com#meta-consulting)
 6. [Strategy Consulting](https://thomaswinterstetter.com#strategy-consulting)
 7. [Pricing](https://thomaswinterstetter.com#pricing)
+
+---
+
+## Referenz
+
+[Makler Köpenick, Immobilienmakler Köpenick](http://winterstetter.online)
