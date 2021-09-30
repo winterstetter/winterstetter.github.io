@@ -11,6 +11,7 @@ Strategic Advisory Services ⊜ Strategy Consulting
 - Strategie Beratung
 - Strategieberatung Berlin
 - Strategieberatung Frankfurt
+- Strategieberatung Hamburg
 - Strategy Consulting Luxembourg
 - Strategy Consulting Trier
 
@@ -20,7 +21,7 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 - Digitalisierungsstrategie
 - [Digitalstrategie](https://thomaswinterstetter.com)
-- [Digital Marketing, Inbound Marketing](https://thomaswinterstetter.com#internet-unternehmensberatung)
+- [Digital Marketing, Inbound Marketing](https://thomaswinterstetter.com#internet-consulting)
 
 ---
 
@@ -33,8 +34,10 @@ Internetberatung, Digitalisierungsberatung:
 - [Internet Berater (Internetberater)](https://thomaswinterstetter.com#internet-consulting)
 - Internet Unternehmensberatung Strategieberater
 - Internet Unternehmensberatung Unternehmensberater
-   - Unternehmensberatung Konz
-   - Unternehmensberatung Trier
+
+### Unternehmensberatung
+
+- [Unternehmensberatung Konz](https://thomaswinterstetter.com/#unternehmensberatung)
+   - [Unternehmensberatung Trier & Umland](https://thomaswinterstetter.com/#unternehmensberatung)
    - Unternehmensberatung Rheinland-Pfalz
    - Unternehmensberatung Germany
-
