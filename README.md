@@ -17,7 +17,7 @@ Strategic Advisory Services ⊜ Strategy Consulting
 
 ---
 
-## [Digitalist](https://thomaswinterstetter.com)
+## [Digitalist](https://thomaswinterstetter.com#internet-consulting)
 
 - Digitalisierungsstrategie
 - [Digitalstrategie](https://thomaswinterstetter.com)
@@ -38,13 +38,25 @@ Internetberatung, Digitalisierungsberatung:
 
 ---
 
-![Unternehmensberatung Trier & Umland, Konz, Saarburg](Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
+![Unternehmensberatung Trier & Umland, Unternehmensberatung Konz, Saarburg](Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
 
 ---
 
 ### Unternehmensberatung
 
-- [Unternehmensberatung Konz](https://thomaswinterstetter.com/#unternehmensberatung)
-   - [Unternehmensberatung Trier & Umland](https://thomaswinterstetter.com/#unternehmensberatung)
+- [Unternehmensberatung Konz](https://thomaswinterstetter.com#unternehmensberatung)
+   - [Unternehmensberatung Trier & Umland](https://thomaswinterstetter.com#unternehmensberatung)
    - Unternehmensberatung Rheinland-Pfalz
    - Unternehmensberatung Germany
+
+---
+
+### Sitemap
+
+1. [Consulting](https://thomaswinterstetter.com#consulting)
+2. [Unternehmensberatung](https://thomaswinterstetter.com#unternehmensberatung)
+3. [Internet-Unternehmensberatung](https://thomaswinterstetter.com#internet-unternehmensberatung)
+4. [Internet Consulting](https://thomaswinterstetter.com#internet-consulting)
+5. [Meta Consulting](https://thomaswinterstetter.com#meta-consulting)
+6. [Strategy Consulting](https://thomaswinterstetter.com#strategy-consulting)
+7. [Pricing](https://thomaswinterstetter.com#pricing)
