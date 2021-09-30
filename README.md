@@ -36,7 +36,7 @@ Internetberatung, Digitalisierungsberatung:
 - Internet Unternehmensberatung Strategieberater
 - Internet Unternehmensberatung Unternehmensberater
 
-![Unternehmensberatung Trier & Umland, Konz, Saarburg](/assets/images/Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
+![Unternehmensberatung Trier & Umland, Konz, Saarburg](/Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
 
 ### Unternehmensberatung
 
