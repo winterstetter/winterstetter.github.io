@@ -1,6 +1,6 @@
-## Strategy Consulting: Strategieberatung
+## Strategy Consulting
 
-[Strategy Consulting](https://thomaswinterstetter.com#strategy-consulting)
+[Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
 > Experienced freelancer based in Germany, available for hire in Europe.
 
