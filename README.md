@@ -1,8 +1,8 @@
-## Strategy Consulting
+## Strategy Consulting: Strategieberatung
 
 [Strategy Consulting](https://thomaswinterstetter.com#strategy-consulting)
 
-Experienced freelancer based in Germany, available for hire in Europe.
+> Experienced freelancer based in Germany, available for hire in Europe.
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
@@ -12,16 +12,16 @@ Strategic Advisory Services ⊜ Strategy Consulting, Strategist
 - Strategieberatung Berlin
 - Strategieberatung Frankfurt
 - Strategieberatung Hamburg
-- Strategy Consulting Luxembourg
-- Strategy Consulting Trier
+- Strategy Consulting Luxembourg, Strategieberatung Luxembourg
+- Strategy Consulting Trier, Strategieberatung Trier
 
 ---
 
-## [Digitalist](https://thomaswinterstetter.com#internet-consulting)
+## [Digitalist: Internet Consulting](https://thomaswinterstetter.com#internet-consulting)
 
 - Digitalisierungsstrategie
 - [Digitalstrategie](https://thomaswinterstetter.com)
-- [Digital Marketing, Inbound Marketing](https://thomaswinterstetter.com#internet-consulting)
+- [Digital Marketing, Inbound Marketing Experte](https://thomaswinterstetter.com#internet-consulting)
 
 ---
 
@@ -47,7 +47,6 @@ Internetberatung, Digitalisierungsberatung:
 - [Unternehmensberatung Konz](https://thomaswinterstetter.com#unternehmensberatung)
    - [Unternehmensberatung Trier & Umland](https://thomaswinterstetter.com#unternehmensberatung)
    - [Unternehmensberatung Rheinland-Pfalz](https://thomaswinterstetter.com/#unternehmensberatung)
-   - Unternehmensberatung Germany
 
 ---
 
