@@ -8,12 +8,12 @@
 
 Strategic Advisory Services ⊜ Strategy Consulting, Strategist
 
-- Strategie Beratung
-- Strategieberatung Berlin
-- Strategieberatung Frankfurt
-- Strategieberatung Hamburg
-- Strategy Consulting Luxembourg, Strategieberatung Luxembourg
-- Strategy Consulting Trier, Strategieberatung Trier
+- Strategy Consulting: Strategie Beratung
+- [Strategy Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com/#strategy-consulting)
+- [Strategy Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com/#strategy-consulting)
+- [Strategy Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com/#strategy-consulting)
+- [Strategy Consulting Luxembourg: Strategieberatung Luxembourg](https://thomaswinterstetter.com/#strategy-consulting)
+- [Strategy Consulting Trier: Strategieberatung Trier: Strategie Beratung Trier](https://thomaswinterstetter.com/#strategy-consulting)
 
 ---
 
@@ -38,7 +38,7 @@ Internetberatung, Digitalisierungsberatung:
 
 ---
 
-![Unternehmensberatung Trier & Umland, Unternehmensberatung Konz, Saarburg](Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
+![Unternehmensberatung Trier: Unternehmensberatung Konz](Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
 
 ---
 
