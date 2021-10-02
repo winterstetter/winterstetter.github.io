@@ -9,19 +9,18 @@
 Strategic Advisory Services ⊜ Strategy Consulting, Strategist
 
 - Strategy Consulting: Strategie Beratung
-- [Strategy Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com/#strategy-consulting)
-- [Strategy Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com/#strategy-consulting)
-- [Strategy Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com/#strategy-consulting)
-- [Strategy Consulting Luxembourg: Strategieberatung Luxembourg](https://thomaswinterstetter.com/#strategy-consulting)
-- [Strategy Consulting Trier: Strategieberatung Trier: Strategie Beratung Trier](https://thomaswinterstetter.com/#strategy-consulting)
+- [Strategy Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy Consulting Luxembourg: Strategieberatung Luxembourg](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy Consulting Trier: Strategieberatung Trier: Strategie Beratung Trier](https://thomaswinterstetter.com#strategy-consulting)
 
 ---
 
 ## [Digitalist: Internet Consulting](https://thomaswinterstetter.com#internet-consulting)
 
-- Digitalisierungsstrategie
-- [Digitalstrategie](https://thomaswinterstetter.com)
-- [Digital Marketing, Inbound Marketing Experte](https://thomaswinterstetter.com#internet-consulting)
+- [Digitalisierungsstrategie / Digitalstrategie](https://thomaswinterstetter.com)
+- [Digital Marketing: Inbound Marketing Experte](https://thomaswinterstetter.com#internet-consulting)
 
 ---
 
@@ -33,8 +32,8 @@ Strategic Advisory Services ⊜ Strategy Consulting, Strategist
 Internetberatung, Digitalisierungsberatung:
 
 - [Internet Berater (Internetberater)](https://thomaswinterstetter.com#internet-consulting)
-- Internet Unternehmensberatung Strategieberater
-- Internet Unternehmensberatung Unternehmensberater
+- [Internet Unternehmensberatung: Strategieberater](https://thomaswinterstetter.com#strategy-consulting)
+- [Internet Unternehmensberatung: Unternehmensberater](https://thomaswinterstetter.com#internet-unternehmensberatung)
 
 ---
 
@@ -46,7 +45,7 @@ Internetberatung, Digitalisierungsberatung:
 
 - [Unternehmensberatung Konz](https://thomaswinterstetter.com#unternehmensberatung)
    - [Unternehmensberatung Trier & Umland](https://thomaswinterstetter.com#unternehmensberatung)
-   - [Unternehmensberatung Rheinland-Pfalz](https://thomaswinterstetter.com/#unternehmensberatung)
+   - [Unternehmensberatung Rheinland-Pfalz](https://thomaswinterstetter.com#unternehmensberatung)
 
 ---
 
