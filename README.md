@@ -19,6 +19,7 @@ Strategic Advisory Services ⊜ Strategy Consulting, Strategist
 
 ## [Digitalist: Internet Consulting](https://thomaswinterstetter.com#internet-consulting)
 
+- Digitalisierungsberatung
 - [Digitalisierungsstrategie / Digitalstrategie](https://thomaswinterstetter.com)
 - [Digital Marketing: Inbound Marketing Experte](https://thomaswinterstetter.com#internet-consulting)
 
@@ -29,8 +30,7 @@ Strategic Advisory Services ⊜ Strategy Consulting, Strategist
 [Internet-Unternehmensberatung](https://thomaswinterstetter.com#internet-unternehmensberatung)
 
 
-Internetberatung, Digitalisierungsberatung:
-
+- Internetberatung
 - [Internet Berater (Internetberater)](https://thomaswinterstetter.com#internet-consulting)
 - [Internet Unternehmensberatung: Strategieberater](https://thomaswinterstetter.com#strategy-consulting)
 - [Internet Unternehmensberatung: Unternehmensberater](https://thomaswinterstetter.com#internet-unternehmensberatung)
