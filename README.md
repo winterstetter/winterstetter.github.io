@@ -1,4 +1,4 @@
-## Expert Strategy Consulting
+# Expert Strategy Consulting
 
 [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
