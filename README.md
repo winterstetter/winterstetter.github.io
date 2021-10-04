@@ -1,4 +1,4 @@
-# Expert Meta Strategy Consulting
+# Strategy & Business Consulting
 
 [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
@@ -9,11 +9,11 @@
 Strategic Advisory Services ⊜ Meta Strategy Consulting, Strategist
 
 - Strategy Consulting: Strategie Beratung
-- [Meta Strategy Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
-- [Meta Strategy Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com#strategy-consulting)
-- [Meta Strategy Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com#strategy-consulting)
-- [Meta Strategy Consulting Luxembourg: Strategieberatung Luxembourg](https://thomaswinterstetter.com#strategy-consulting)
-- [Strategy Consulting Trier: Strategieberatung Trier: Strategie Beratung Trier](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy & Business Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy & Business Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy & Business Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy & Business Consulting Luxembourg: Strategieberatung Luxembourg](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy & Business Trier: Strategieberatung Trier: Strategie Beratung Trier](https://thomaswinterstetter.com#strategy-consulting)
 
 ---
 
