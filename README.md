@@ -1,4 +1,4 @@
-# Strategy Consultancy & Business Consulting Services
+# Strategy Consultancy: Business Consulting Services
 
 [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
