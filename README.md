@@ -6,7 +6,7 @@
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
-Strategic Advisory Services ⊜ Meta Strategy Consulting, Strategist
+Strategic Advisory Services, Strategist ⊜ Meta Strategy Consulting
 
 - Strategy Consulting: Strategie Beratung
 - [Strategy Consultancy & Business Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
@@ -37,7 +37,7 @@ Strategic Advisory Services ⊜ Meta Strategy Consulting, Strategist
 
 ---
 
-![Unternehmensberatung Trier: Unternehmensberatung Konz](Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
+![Unternehmensberatung Trier, Unternehmensberatung Konz](Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
 
 ---
 
