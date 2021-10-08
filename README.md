@@ -2,7 +2,9 @@
 
 [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
-> Experienced freelancer based in Germany, available for hire in Europe.
+> Experienced freelancer based in Germany, available for hire in Europe. Berlin Frankfurt Germany Hamburg Luxembourg Milano Paris Trier.
+
+
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
