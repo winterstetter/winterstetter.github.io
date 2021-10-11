@@ -4,7 +4,11 @@
 
 > Experienced freelancer based in Germany, available for hire in Europe. Berlin Frankfurt Germany Hamburg Luxembourg Milano Paris Trier.
 
+---
 
+## Stratégie Experte Beratung Strategy Consulting (Strategist Digitalist Expert)
+
+Internet Unternehmensberatung - Berlin Frankfurt (Luxembourg) Luxemburg Saarbrücken Trier
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
