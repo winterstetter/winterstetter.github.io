@@ -15,10 +15,10 @@ Internet Unternehmensberatung - Berlin Frankfurt (Luxembourg) Luxemburg Saarbrü
 Strategic Advisory Services, Strategist ⊜ Meta Strategy Consulting
 
 - Strategy Consulting: Strategie Beratung
-- [Strategy Consultancy & Business Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
-- [Strategy Consultancy & Business Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com#strategy-consulting)
-- [Strategy Consultancy & Business Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com#strategy-consulting)
-- [Strategy Consultancy & Business Consulting Luxembourg: Strategieberatung Luxembourg](https://thomaswinterstetter.com#strategy-consulting)
+- [Remote Strategy Consultancy & Business Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
+- [Remote Strategy Consultancy & Business Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com#strategy-consulting)
+- [Remote Strategy Consultancy & Business Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com#strategy-consulting)
+- [Remote Strategy Consultancy & Business Consulting Luxembourg: Strategieberatung Luxembourg](https://thomaswinterstetter.com#strategy-consulting)
 - [Strategy Consultancy & Business Consulting Trier: Strategieberatung Trier: Strategie Beratung Trier](https://thomaswinterstetter.com#strategy-consulting)
 
 ---
