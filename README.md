@@ -1,6 +1,7 @@
-# Strategy Consultancy: Business Consulting Expert Services
+# Strategy Consultancy (Remote): Business Consulting Expert Services
 
-[Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
+- Consultant Management Strategy Communication
 
 > Experienced freelancer based in Germany, available for hire in Europe. Berlin Frankfurt Germany Hamburg Luxembourg Milano Paris Trier.
 
@@ -14,7 +15,7 @@ Internet Unternehmensberatung - Berlin Frankfurt (Luxembourg) Luxemburg Saarbrü
 
 Strategic Advisory Services, Strategist ⊜ Meta Strategy Consulting
 
-- Remote Strategy Consulting: Strategie Beratung
+- Strategy Consulting (Remote): Strategie Beratung
 - [Strategy Consultancy & Business Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
 - [Strategy Consultancy & Business Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com#strategy-consulting)
 - [Strategy Consultancy & Business Consulting Hamburg: Strategieberatung Hamburg](https://thomaswinterstetter.com#strategy-consulting)
@@ -23,7 +24,7 @@ Strategic Advisory Services, Strategist ⊜ Meta Strategy Consulting
 
 ---
 
-## [Digitalist: Remote Internet Consulting](https://thomaswinterstetter.com#internet-consulting)
+## [Digitalist: Internet Consulting (Remote)](https://thomaswinterstetter.com#internet-consulting)
 
 - Digital Consulting / Remote Consulting
 - Digitalisierungsberatung
@@ -57,7 +58,7 @@ Strategic Advisory Services, Strategist ⊜ Meta Strategy Consulting
 
 ---
 
-## Beratung / Consulting
+## Beratung / Consulting (Remote)
 
 1. [Beratung / Consulting](https://thomaswinterstetter.com#consulting)
 2. [Unternehmensberatung](https://thomaswinterstetter.com#unternehmensberatung)
