@@ -1,9 +1,9 @@
-# Strategy Consultancy (Remote): Business Consulting Expert Services
+# Strategy Consultancy: Business Consulting Services
 
 - [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 - Consultant Management Strategy Communication
 
-> Experienced freelancer based in Germany, available for hire in Europe. Berlin Frankfurt Germany Hamburg Luxembourg Milano Paris Trier.
+> Experienced expert freelancer based in Germany, available for hire in Europe. Berlin Frankfurt Germany Hamburg Luxembourg (Milano Paris Remote) Saarbrücken Trier.
 
 ---
 
