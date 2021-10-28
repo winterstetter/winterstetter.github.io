@@ -46,7 +46,7 @@ Strategic Advisory Services, Strategist ⊜ Meta Strategy Consulting
 
 ---
 
-![Unternehmensberatung Trier, Unternehmensberatung Konz](Unternehmensberatung-Unternehmensberater-Konz-Trier.png)
+![Unternehmensberatung Trier, Unternehmensberatung Konz](Unternehmensberatung-Unternehmensberater-Konz-Luxembourg-Trier.png)
 
 ---
 
