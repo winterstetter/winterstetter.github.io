@@ -1,5 +1,6 @@
-# Strategy Consultancy: Business Consulting Services
+# Meta Strategy Consultancy: Business Consulting Services
 
+- [Meta Consulting Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 - Consultant Management Strategy Communication
 
