@@ -1,4 +1,4 @@
-# Meta Strategy Consultancy: Business Consulting Services (Remote)
+# Meta Strategy Consultancy: Business Consulting Services (Remote / Remote-Beratung)
 
 - [Meta Consulting Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
