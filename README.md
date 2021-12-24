@@ -3,7 +3,7 @@
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
-> Experienced freelancer based in Germany, available for hire in Europe. Berlin, Frankfurt, Germany, Hamburg, Luxembourg, Milano, Paris, Remote, Saarbrücken, Trier
+> Experienced freelancer based in Germany, available for hire in Europe. Berlin, Frankfurt / Main, Germany, Hamburg, Luxembourg City, Milano, Paris, Remote, Saarbrücken, Trier
 
 ---
 
@@ -14,7 +14,7 @@
 
 ## Stratégie Experte Beratung Strategy Consulting Services (Strategist Digitalist Expert)
 
-Internet-Unternehmensberatung: Luxembourg City (Trier/Luxemburg), Saarbrücken, Frankfurt, Berlin
+Internet-Unternehmensberatung: Luxembourg City (Trier/Luxemburg), Saarbrücken, Frankfurt am Main, Berlin / Spree
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
