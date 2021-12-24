@@ -1,4 +1,4 @@
-# Stratégie Experte: Strategy Consulting: Unternehmensberater Remote-Beratung
+# Stratégie Experte: Strategy Consulting Services: Unternehmensberater Remote-Beratung
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
@@ -7,7 +7,12 @@
 
 ---
 
-## Stratégie Experte Beratung Strategy Consulting (Strategist Digitalist Expert)
+- [List of management consulting firms](https://en.wikipedia.org/wiki/List_of_management_consulting_firms)
+- [Liste der führenden Managementberatungen in Deutschland](https://de.wikipedia.org/wiki/Liste_der_führenden_Managementberatungen_in_Deutschland)
+
+---
+
+## Stratégie Experte Beratung Strategy Consulting Services (Strategist Digitalist Expert)
 
 Internet-Unternehmensberatung: Luxembourg City (Trier/Luxemburg), Saarbrücken, Frankfurt, Berlin
 
