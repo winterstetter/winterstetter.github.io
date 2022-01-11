@@ -14,7 +14,7 @@
 
 ## Stratégie Experte Beratung Strategy Consulting Services (Strategist Digitalist Expert)
 
-Internet-Unternehmensberatung: Luxembourg City (Trier/Luxemburg), Saarbrücken, Frankfurt am Main, Berlin / Spree
+Internet-Unternehmensberatung: Luxembourg City (Trier/Luxemburg), Saarbrücken, Frankfurt am Main, Berlin
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
@@ -49,7 +49,7 @@ Strategic Advisory Services, Strategist: Meta Strategy Consulting
 
 ---
 
-## Remote-Beratung / Remote Consulting
+## Remote-Beratung / Remote Consulting Freelance
 
 1. [Beratung / Consulting](https://thomaswinterstetter.com#consulting)
 2. [Unternehmensberatung](https://thomaswinterstetter.com#unternehmensberatung)
