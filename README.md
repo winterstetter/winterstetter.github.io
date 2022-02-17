@@ -1,4 +1,4 @@
-# Strategy Consulting Services: Unternehmensberater mit Remote-Beratung
+# Strategy Consulting Services
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
