@@ -14,7 +14,7 @@
 
 ## Stratégie Experte Beratung, Strategist Digitalist
 
-Internet-Unternehmensberatung: Luxembourg City (Trier/Luxemburg), Saarbrücken, Mainz, Frankfurt am Main, Berlin
+Internet-Unternehmensberatung: Luxembourg City (Mainz, Trier/Luxemburg), Saarbrücken, Mainz, Frankfurt am Main, Berlin
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
