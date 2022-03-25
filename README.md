@@ -1,9 +1,9 @@
-# Strategy Consulting Services
+# Meta Strategy Consulting Services
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
-> Experienced freelancer based in Germany, available for hire in Europe. Berlin, Frankfurt/Main, Hamburg, Luxembourg City, Milano, Paris. Saarbrücken, Trier, Mainz. Remote Consulting / Work & Travel.
+> Experienced freelancer based in Germany, available for hire in Europe. Berlin, Frankfurt/Main, Luxembourg City, Milano, Paris. Saarbrücken, Trier, Mainz. Remote Consulting / Work & Travel.
 
 ---
 
