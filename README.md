@@ -14,7 +14,7 @@
 
 ## Stratégie Experte Beratung, Strategist Digitalist
 
-Internet-Unternehmensberatung: Luxembourg City (Mainz, Trier/Luxemburg), Saarbrücken, Mainz, Frankfurt am Main, Berlin
+Internet-Unternehmensberatung, Expert(e) Strategie Digitale: Luxembourg City (Mainz, Saarbrücken, Trier), Frankfurt am Main, Berlin
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
@@ -32,7 +32,7 @@ Strategic Advisory Services, Strategist: Meta Strategy Consulting
 - Digital Consulting / Remote Consulting
 - Digitalisierungsberatung
 - [Digitalstrategie / Digitalisierungsstrategie](https://thomaswinterstetter.com)
-- [Digital Marketing: Inbound Marketing Experte (Remote)](https://thomaswinterstetter.com#inbound-marketing-consulting)
+- [Digital Marketing: Inbound Marketing Experte (Remote)](https://thomaswinterstetter.com/#inbound-marketing-consulting)
 
 ---
 
