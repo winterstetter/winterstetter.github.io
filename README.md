@@ -32,7 +32,7 @@ Strategic Advisory Services, Strategist: Meta Strategy Consulting
 - Digital Consulting / Remote Consulting
 - Digitalisierungsberatung
 - [Digitalstrategie / Digitalisierungsstrategie](https://thomaswinterstetter.com)
-- [Digital Marketing: Inbound Marketing Experte (Remote)](https://thomaswinterstetter.com/#inbound-marketing-consulting)
+- Digital Marketing: Inbound Marketing Experte (Remote)
 
 ---
 
