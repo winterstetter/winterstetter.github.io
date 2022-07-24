@@ -1,4 +1,4 @@
-# Meta Strategy Boutique Consulting
+# Meta Strategy ✚ Boutique Consulting
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberater in Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
