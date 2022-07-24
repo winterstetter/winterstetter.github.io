@@ -1,7 +1,7 @@
-# Meta Strategy Consulting Services
+# Meta Strategy Boutique Consulting
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
-- [Strategy Consulting, Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy Consulting, Strategieberater in Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
 > Experienced freelancer based in Germany, available for hire in Europe. Berlin, Frankfurt/Main, Luxembourg City, Milano, Paris. Aachen, Koblenz, Mainz, Saarbrücken, Trier. Remote Consulting / Work & Travel.
 
@@ -12,9 +12,9 @@
 
 ---
 
-## Stratégie Experte Beratung, Strategist Digitalist
+## Stratégie Experte Beratung, Strategist / Digitalist
 
-Internet-Unternehmensberatung, Expert(e) Strategie Digitale: Luxembourg City (Aachen, Koblenz, Mainz, Saarbrücken, Trier), Frankfurt am Main, Berlin
+Internet-Unternehmensberater in Internet-Unternehmensberatung, Expert(e) Strategie Digitale: Luxembourg City (Aachen, Koblenz, Mainz, Saarbrücken, Trier), Frankfurt am Main, Berlin
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
@@ -23,22 +23,22 @@ Strategic Advisory Services, Strategist: Meta Strategy Consulting
 - Strategy Consulting (Remote): Strategieberatung
 - [Strategy Consultancy & Business Consulting Berlin: Strategieberatung Berlin](https://thomaswinterstetter.com#strategy-consulting)
 - [Strategy Consultancy & Business Consulting Frankfurt: Strategieberatung Frankfurt](https://thomaswinterstetter.com#strategy-consulting)
-- [Strategy Consultancy & Business Consulting Trier/Luxembourg: Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
+- [Strategy Consultancy & Business Consulting Trier/Luxembourg: Freier Strategieberater in Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
 ---
 
 ## [Digitalist: Internet Consulting (Remote)](https://thomaswinterstetter.com#internet-consulting)
 
 - Digital Consulting / Remote Consulting
-- Digitalisierungsberatung
+- Digitalisierungsberater in Digitalisierungsberatung
 - [Digitalstrategie / Digitalisierungsstrategie](https://thomaswinterstetter.com)
-- Digital Marketing: Inbound Marketing Experte (Remote)
+- Digital Marketing: Inbound Marketing Experte / SEO (Remote)
 
 ---
 
 ## Unternehmensberatung im Internet
 
-- [Internet Berater: Internetberater Internetberatung](https://thomaswinterstetter.com#internet-consulting)
+- [Internet Berater: Internetberater in Internetberatung](https://thomaswinterstetter.com#internet-consulting)
 - [Internet-Unternehmensberatung](https://thomaswinterstetter.com#internet-unternehmensberatung)
 - [Internet Unternehmensberatung: Strategieberater](https://thomaswinterstetter.com#strategy-consulting)
 - [Internet Unternehmensberatung: Unternehmensberater](https://thomaswinterstetter.com#internet-unternehmensberatung)
