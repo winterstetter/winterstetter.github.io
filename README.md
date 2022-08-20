@@ -1,9 +1,9 @@
-# Meta Strategy ✚ Boutique Consulting
+# 20²² Strategy Consulting Boutique Meta Consulting Internet-Unternehmensberatung Unternehmensberater Strategieberatung Strategieberater Internet Consultant Internetstrategie - Berlin Brussels Bruxelles Frankfurt Germany Mainz Saarbrücken Trier Luxembourg City Paris Milano
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberater in Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
 
-> Experienced freelancer based in Germany, available for hire in Europe. Berlin, Frankfurt/Main, Luxembourg City, Milano, Paris. Aachen, Koblenz, Mainz, Saarbrücken, Trier. Remote Consulting / Work & Travel.
+> Experienced freelancer based in Germany, available for hire in Europe. Berlin, Brussels, Frankfurt/Main, Luxembourg City, Milano, Paris. Aachen, Koblenz, Mainz, Saarbrücken, Trier. Remote Consulting / Work & Travel.
 
 ---
 
