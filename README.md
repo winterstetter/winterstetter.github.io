@@ -1,4 +1,4 @@
-# 20²² Strategy Consulting Boutique Meta Consulting Internet-Unternehmensberatung Unternehmensberater Strategieberatung Strategieberater Internet Consultant Internetstrategie - Berlin Brussels Bruxelles Frankfurt Germany Mainz Saarbrücken Trier Luxembourg City Paris Milano
+# 20²² Strategy Consulting Boutique Meta Consulting Internet-Unternehmensberatung Unternehmensberater Strategieberatung Strategieberater Internet Consultant Internetstrategie
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberater in Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
