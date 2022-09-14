@@ -1,4 +1,4 @@
-# 20²² Strategy Consulting Meta Consulting Conseil Consulenza Stratégie Digitale Strategieberatung Internet Consultant Internetstrategie Internet Unternehmensberater Boutique Freelancer
+# 𝟤𝟢𝟤𝟤 𝗦𝗧𝗥𝗔𝗧𝗘𝗚𝗬 𝗖𝗼𝗻𝘀𝘂𝗹𝘁𝗶𝗻𝗴 𝗠𝗘𝗧𝗔 𝗖𝗼𝗻𝘀𝘂𝗹𝘁𝗶𝗻𝗴 Strategieberatung Strategieentwicklung Stratégie Digitale Berater Beratung Internetstrategie Internet Consultant Unternehmensberater (Boutique Freelancer Remote)
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberater in Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
