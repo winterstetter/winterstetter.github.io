@@ -1,4 +1,4 @@
-# ㊉ 2022 Strategy Consulting Meta Consulting Strategieberater Strategieberatung Strategieentwicklung Strategie Digitale Unternehmensberater Unternehmensberatung Internet Consultant Internetstrategie Berater Beratung Boutique Freelancer Remote ㊉ Berlin Bruxelles Frankfurt Luxembourg City Saarbrücken Trier Paris Milano
+# ㊉ 2023 Strategy Consulting Meta Consulting Strategieberater Strategieberatung Strategieentwicklung Strategie Digitale Unternehmensberater Unternehmensberatung Internet Consultant Internetstrategie Berater Beratung Boutique Freelancer Remote ㊉ Berlin Bruxelles Frankfurt Luxembourg City Saarbrücken Trier Paris Milano
 
 - [Meta Consulting: Metastrategie, Meta Strategie- & Unternehmensberater](https://thomaswinterstetter.com#meta-consulting)
 - [Strategy Consulting, Strategieberater in Strategieberatung](https://thomaswinterstetter.com#strategy-consulting)
