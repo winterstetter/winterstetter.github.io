@@ -14,7 +14,7 @@
 
 ## Stratégie Experte Beratung, Strategist / Digitalist
 
-Internet-Unternehmensberater in Internet-Unternehmensberatung, Expert(e) Strategie Digitale: Bruxelles, Luxembourg City (Aachen, Koblenz, Mainz, Saarbrücken, Trier), Frankfurt am Main, Berlin. Einzugsgebiete, Region, Umgebung, Umland.
+Internet-Unternehmensberater in Internet-Unternehmensberatung, Expert(e) Strategie Digitale: Bruxelles, Luxembourg City (Aachen, Koblenz, Mainz, Saarbrücken, Trier), Frankfurt am Main, Berlin. Einzugsgebiete, Raum, Region, Umgebung, Umland.
 
 ### [Strategic Advisory Services](https://thomaswinterstetter.com)
 
