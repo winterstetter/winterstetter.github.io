@@ -32,7 +32,7 @@ Internet Strategy: Internet-Strategieberatung digitale Strategie bzw. Internetst
 
 ---
 
-![Thomas Winterstetter, 2023](Unternehmensberatung-Unternehmensberater-Konz-Luxemburg-Trier.png "Unternehmensberatung, Unternehmensberater - Konz Luxemburg Trier")
+![Thomas Winterstetter, 2023](Strategieberatung-Remote-Beratung-Unternehmensberatung-Unternehmensberater.png "Strategieberatung, Unternehmensberatung, Unternehmensberater")
 ---
 
 ### Hire Meta consulting for quick answers & valuable perspectives
