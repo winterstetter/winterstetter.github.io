@@ -4,7 +4,7 @@ Freie Strategie Beratung: Berlin Bruxelles Frankfurt Luxembourg City Milano Pari
 
 ---
 
-![Thomas Winterstetter, 2023](Unternehmensberatung-Unternehmensberater-Konz-Luxemburg-Trier.png "Thomas Winterstetter, 2023")
+![Thomas Winterstetter, 2023](Thomas-Winterstetter-2023-1200.jpg "Thomas Winterstetter, 2023")
 
 ---
 
@@ -30,6 +30,9 @@ Meta Consulting Boutique Meta Consultant (Freelance Remote) ㊉ local near Berli
 
 Internet Strategy: Internet-Strategieberatung digitale Strategie bzw. Internetstrategie, Inbound-Marketing & strategic expert SEO Services in 2023. Internet Consulting als Internetstratege im Raum Luxembourg City & Umgebung.
 
+---
+
+![Thomas Winterstetter, 2023](Unternehmensberatung-Unternehmensberater-Konz-Luxemburg-Trier.png "Unternehmensberatung, Unternehmensberater - Konz Luxemburg Trier")
 ---
 
 ### Hire Meta consulting for quick answers & valuable perspectives
