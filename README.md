@@ -37,4 +37,4 @@ Internet Strategy: Internet-Strategieberatung digitale Strategie bzw. Internetst
 
 ### Hire Meta consulting for quick answers & valuable perspectives
 
-Discerning client & struggling for the right strategy (on the web)? About to hire an independent strategy consultant (Consultant en stratégie), communications director & strategic adviser? Systematic structured issue assessment & metastrategic problem solving offered by an experienced freelancer in a boutique consulting firm in Germany, Europe. :rocket: Ready when you are.
+Discerning client & struggling for the right strategy (on the web)? About to hire an independent strategy consultant (Consultant en stratégie), communications director & strategic adviser? Systematic structured issue assessment & metastrategic problem solving offered by an experienced freelancer in a boutique consulting firm in Germany, Europe. Ready when you are.
