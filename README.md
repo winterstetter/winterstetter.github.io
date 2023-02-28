@@ -32,7 +32,7 @@ Internet Strategy: Internet-Strategieberatung digitale Strategie bzw. Internetst
 
 ---
 
-![Thomas Winterstetter, 2023](Strategieberatung-Remote-Beratung-Unternehmensberatung-Unternehmensberater.png "Strategieberatung, Unternehmensberatung, Unternehmensberater")
+![Thomas Winterstetter, 2023](Strategieberatung-Remote-Beratung-Unternehmensberatung-Unternehmensberater.png?v=20230228.1 "Strategieberatung, Unternehmensberatung, Unternehmensberater")
 ---
 
 ### Hire Meta consulting for quick answers & valuable perspectives
