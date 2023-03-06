@@ -22,13 +22,15 @@ Backup, Entscheidung, Strategieentwicklung. Hilfe bei modernen Komplikationen. T
 
 Meta Consulting Boutique Meta Consultant (Freelance Remote) ㊉ local near Berlin Brussels Bruxelles Frankfurt Germany Mainz Saarbrücken Trier Luxembourg City Paris Milano.
 
----
+- [How Meta Strategy Consulting is different](https://thomaswinterstetter.com "How Meta Strategy Consulting is different")
 
 ## Internet Consultant: Internetstrategie
 
 [Internet Consulting, Internet-Unternehmensberatung](https://thomaswinterstetter.com/internet-unternehmensberatung)
 
 Internet Strategy: Internet-Strategieberatung digitale Strategie bzw. Internetstrategie, Inbound-Marketing & strategic expert SEO Services in 2023. Internet Consulting als Internetstratege im Raum Luxembourg City & Umgebung.
+
+- [Warum Internet-Unternehmensberatung](https://thomaswinterstetter.com/internet-unternehmensberatung "Warum Internet-Unternehmensberatung")
 
 ---
 
