@@ -4,7 +4,7 @@ Freie Strategie Beratung: Berlin Bruxelles Frankfurt Luxembourg City Milano Pari
 
 ---
 
-![Thomas Winterstetter, 2024](Thomas-Winterstetter-2024-1200.jpg?v=20231213.1 "Thomas Winterstetter, 2024")
+![Thomas Winterstetter, 2024](Thomas-Winterstetter-2024-1200.jpg?v=20231213.1"Thomas Winterstetter, 2024")
 
 ---
 
