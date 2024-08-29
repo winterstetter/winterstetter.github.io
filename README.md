@@ -24,14 +24,6 @@ Meta Consulting Boutique Meta Consultant (Freelance Remote) ㊉ local near Berli
 
 - [How Meta Strategy Consulting is different](https://thomaswinterstetter.com "How Meta Strategy Consulting is different")
 
-## Internet Consultant: Internetstrategie
-
-[Internet Consulting, Internet-Unternehmensberatung](https://thomaswinterstetter.com/internet-unternehmensberatung)
-
-Internet Strategy: Internet-Strategieberatung digitale Strategie bzw. Internetstrategie, Inbound-Marketing & strategic expert SEO Services in 2024. Internet Consulting als Internetstratege im Raum Luxembourg City & Umgebung.
-
-- [Warum Internet-Unternehmensberatung](https://thomaswinterstetter.com/internet-unternehmensberatung "Warum Internet-Unternehmensberatung")
-
 ---
 
 ![Thomas W. Winterstetter, 2024](Strategieberatung-Remote-Beratung-Unternehmensberatung-Unternehmensberater.png?v=20231211.1 "Strategieberatung, Unternehmensberatung, Unternehmensberater")
