@@ -1,4 +1,4 @@
-## 2025 Strategy Meta Consulting ㊉ Remote Strategist Stratege Strategieberatung
+## Meta Strategy Consulting 2025 — Remote Strategist Stratege Strategieberatung
 
 Freie Strategie Beratung: Berlin Bruxelles Frankfurt Luxembourg City Milano Paris Saarbrücken Trier
 
