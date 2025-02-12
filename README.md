@@ -26,7 +26,7 @@ Meta Consulting Boutique Meta Consultant (Freelance Remote) ㊉ local near Berli
 
 ---
 
-![Thomas W. Winterstetter, 2025](Strategieberatung-Remote-Beratung-Unternehmensberatung-Unternehmensberater.png?v=20231211.1 "Strategieberatung, Unternehmensberatung, Unternehmensberater")
+![Thomas W. Winterstetter, 2025](Meta-Advisory-Consigliere-Consulting-2025.png?v=20250212.1 "Meta Advisory, Meta Consigliere, Meta Consulting")
 ---
 
 ### Hire Meta consulting for quick answers & valuable perspectives
