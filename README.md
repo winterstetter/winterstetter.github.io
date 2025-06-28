@@ -4,11 +4,11 @@ Freie Strategie Beratung: Berlin Bruxelles Copenhagen Frankfurt Luxembourg City 
 
 ---
 
-![Thomas W. Winterstetter, 2025](Thomas-Winterstetter-2024-1200.jpg?v=20240211.1 "Thomas W. Winterstetter, 2025")
+![Thomas W. Winterstetter, 2025](Thomas-Winterstetter-2025-1200.jpg?v=20250628.1 "Thomas Werner Winterstetter, 2025")
 
 ---
 
-[Thomas W. Winterstetter](https://thomaswinterstetter.com) is a self-educated strategy advisor (remote strategist). [Meta strategy consultant, consigliere, strategist](https://thomaswinterstetter.com). Change management consulting, executive leadership advisory, new opportunities. Freelance consultant for hire. Home office based in Germany near Luxembourg City, Saarbrücken, Trier. Fully remote work / work & travel: Berlin, Bruxelles, Copenhagen, Frankfurt, Paris, Milano.
+[Thomas Werner Winterstetter](https://thomaswinterstetter.com) is a self-educated strategy advisor (remote solo strategist). [Meta strategy consultant, consigliere, strategist](https://thomaswinterstetter.com). Change management consulting, executive leadership advisory, new opportunities. Freelance consultant for hire. Home office based in Germany near Luxembourg City, Saarbrücken, Trier. Fully remote work / work & travel: Berlin, Bruxelles, Copenhagen, Frankfurt, Paris, Milano.
 
 Beratungsleistungen als freier Berater / freier Strategieberater: Transformation in Betrieben, Firmen, KMU & Unternehmen mit externer Strategie-Beratung strategisch entwickeln. Verbundene Strategien. Lange Zukunft strategisch denken & gestalten. Digital Strategist. Digitalstratege. Digitalstrategie. Internetspezialist. Strategie + strategische Beratung.
 
