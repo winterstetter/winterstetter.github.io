@@ -1,10 +1,10 @@
-## Meta Advisory Strategy Consulting 2025—Remote Solo Strategist Stratege Strategieberatung
+## Meta Advisory Strategy Consulting 2026—Remote Solo Strategist Stratege Strategieberatung
 
 Freie Strategie Beratung: Berlin Bruxelles Copenhagen Frankfurt Luxembourg City Milano Paris Saarbrücken Trier
 
 ---
 
-![Thomas W. Winterstetter, 2025](Thomas-Winterstetter-2025-1200.jpg?v=20250628.1 "Thomas Werner Winterstetter, 2025")
+![Thomas W. Winterstetter, 2026](Thomas-Winterstetter-2025-1200.jpg?v=20250628.1 "Thomas Werner Winterstetter, 2026")
 
 ---
 
@@ -26,7 +26,7 @@ Meta Consulting Boutique Meta Consultant (Freelance Remote) ㊉ local near Berli
 
 ---
 
-![Thomas W. Winterstetter, 2025](Meta-Advisory-Consigliere-Consulting-2025.png?v=20250212.1 "Meta Advisory, Meta Consigliere, Meta Consulting")
+![Thomas W. Winterstetter, 2026](Meta-Advisory-Consigliere-Consulting-2025.png?v=20250212.1 "Meta Advisory, Meta Consigliere, Meta Consulting 2026")
 ---
 
 ### Hire Meta consulting for quick answers & valuable perspectives
