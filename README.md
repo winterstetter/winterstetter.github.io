@@ -1,4 +1,10 @@
-## Meta Advisory Strategy Consulting 2026—Remote Solo Strategist Stratege Strategieberatung
+## Supra Advisory Strategy Consulting 2026—Remote Solo Strategist Stratege Strategieberatung
+
+THE WORK › Supra Level Consulting
+
+Causality. Leverage as a mechanism. Designing decisions. Strategy Sprints. Decision-as-a-Service.
+
+🆕 › ⭕️ › 🆗 › 🆑 › 🆘 › 🧿 › 🆎
 
 Freie Strategie Beratung: Berlin Bruxelles Copenhagen Frankfurt Luxembourg City Milano Paris Saarbrücken Trier
 
@@ -20,15 +26,15 @@ Meta-Stratege
 
 Backup, Entscheidung, Strategieentwicklung. Hilfe bei modernen Komplikationen. Troubleshooting.
 
-Meta Consulting Boutique Meta Consultant (Freelance Remote) ㊉ local near Berlin Brussels Bruxelles Copenhagen Frankfurt Germany Mainz Saarbrücken Trier Luxembourg City Paris Milano.
+Supra Consulting Boutique Supra Level Consultant (Freelance Remote) ㊉ local near Berlin Brussels Bruxelles Copenhagen Frankfurt Germany Mainz Saarbrücken Trier Luxembourg City Paris Milano.
 
-- [How Meta Strategy Consulting is different](https://thomaswinterstetter.com "How Meta Strategy Consulting is different")
+- [How Supra Strategy Consulting is different](https://thomaswinterstetter.com "How Supra Strategy Consulting is different")
 
 ---
 
 ![Thomas W. Winterstetter, 2026](Meta-Advisory-Consigliere-Consulting-2025.png?v=20250212.1 "Meta Advisory, Meta Consigliere, Meta Consulting 2026")
 ---
 
-### Hire Meta consulting for quick answers & valuable perspectives
+### Hire Supra level consulting for quick answers & valuable perspectives
 
 Discerning client & struggling for the right strategy (on the web)? About to hire an independent strategy consultant (Consultant en stratégie), communications director & strategic adviser? Systematic structured issue assessment & metastrategic problem solving offered by an experienced freelancer in a boutique consulting firm in Germany, Europe. Ready when you are.
