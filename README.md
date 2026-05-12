@@ -1,4 +1,10 @@
-## Supra Advisory Strategy Consulting 2026—Remote Solo Strategist Stratege Strategieberatung
+## Making Decision Strategic Advisory Strategy Consulting 2026—Remote Solo Strategist Stratege Strategieberatung
+
+Advisory / Consulting on Decision-making & Strategy advice
+
+2026 private solo advisor for senior leaders navigating complex decisions (adaptive decisions, flexible timeworn strategies (signature negotiating strategies), rapid sharp reinterpretation). Strategic clarity & control in chaos, meta-competence, combined perspectives & high-trust deep generalist hands-on advisory role & decision-making support across Europe ▷
+
+---
 
 THE WORK › Supra Level Consulting
 
