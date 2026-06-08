@@ -16,7 +16,7 @@ Freie Strategie Beratung: Berlin Bruxelles Copenhagen Frankfurt Luxembourg City 
 
 ---
 
-![Thomas W. Winterstetter, 2026](Thomas-Winterstetter-2025-1200.jpg?v=20250628.1 "Thomas Werner Winterstetter, 2026")
+![Thomas W. Winterstetter, 2026](thomas-winterstetter-strategist-strategy-advisor-2026.jpeg?v=20260608.001 "Thomas Winterstetter, 2026")
 
 ---
 
