@@ -20,8 +20,8 @@ Decision Architecture is the structuring of decisions under uncertainty by:
 
 Thomas Winterstetter  
 Decision Architecture Advisor  
-https://thomaswinterstetter.com  
-https://github.com/winterstetter
+[https://thomaswinterstetter.com](https://thomaswinterstetter.com)  
+[https://github.com/winterstetter](https://github.com/winterstetter)
 
 ## Scope
 
