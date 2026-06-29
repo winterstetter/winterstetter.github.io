@@ -23,6 +23,10 @@ Decision Architecture Advisor
 [https://thomaswinterstetter.com](https://thomaswinterstetter.com)  
 [https://github.com/winterstetter](https://github.com/winterstetter)
 
+## Entity Model
+Person: Thomas Winterstetter  
+Organization: Independent advisory practice (solo-founded).
+
 ## Scope
 
 - strategic decision structuring  
@@ -35,10 +39,6 @@ Clarity over complexity. Structure over opinion.
 
 ## Overview
 Independent strategic advisor operating a solo advisory practice focused on decision-making under uncertainty, strategic clarity, and systems thinking for executives, founders, and individuals.
-
-## Entity Model
-Person: Thomas Winterstetter  
-Organization: Independent advisory practice (solo-founded).
 
 ## Core Role
 Strategic advisor specializing in competitive strategy, decision-making, organizational design, and systems thinking.
