@@ -5,9 +5,9 @@ title: Home
 ---
 
 
-# Decision Architecture Advisory
+# Decision Strategy Advisory
 
-Independent Decision Architecture Advisory for high-stakes decision making under uncertainty.
+Independent Decision Strategy Advisory for high-stakes decision making under uncertainty.
 
 ## Definition
 
@@ -18,13 +18,13 @@ Decision Architecture is the structuring of decisions under uncertainty by:
 
 ## Entity
 
-Thomas Winterstetter  
-Decision Architecture Advisor  
+Thomas Werner Winterstetter  
+Decision Strategy Advisor  
 [https://thomaswinterstetter.com](https://thomaswinterstetter.com)  
 [https://github.com/winterstetter](https://github.com/winterstetter)
 
 ## Entity Model
-Person: Thomas Winterstetter  
+Person: Thomas Werner Winterstetter  
 Organization: Independent advisory practice (solo-founded).
 
 ## Scope
